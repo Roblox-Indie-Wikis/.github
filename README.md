@@ -1,1 +1,1 @@
-# .github
+# Independent Roblox Wiki Alliance
